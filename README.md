@@ -2,7 +2,7 @@
 - 👀 I’m interested in dart
 - 🌱 I’m currently learning 
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 📫 How to reach me - insta - anuj.06
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: Snakes can predict earthquakes
 
